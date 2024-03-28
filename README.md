@@ -1,0 +1,2 @@
+# Meu-Sola
+pessoa especial
